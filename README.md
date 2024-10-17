@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 15th March.
 - 📫 How to reach me giving me real time.
 - 😄 Pronouns: baappyy
-- ⚡ Fun fact: Travelling, Coding, Coocking.
+- ⚡ Fun fact: Travelling, Coding.
 
 <!---
 bappy9t4/bappy9t4 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
